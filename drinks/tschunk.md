@@ -11,7 +11,7 @@ Der Tschunk betschunkt sehr tschunkig.
 - *0.5* Limetten
 - *1 EL* Rohrzucker
 - *200 ml* Club Mate
-- *40 cl* Rum
+- *4 cl* Rum
 - Eis
 
 ---
